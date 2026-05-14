@@ -1,4 +1,4 @@
-
+Download updated jujutsu shenanigans Script for jujutsu shenanigans, the best script available, featuring no clip and auto-collect. This powerful tool ensures you have the upper
 
 
 
